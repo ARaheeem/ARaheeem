@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ARaheeem/Abdulcyber](https://github.com/ARaheeem/Abdulcyber)
 
-- 📫 How to reach me **arwarraich1@outlook.com**
+- 📫 How to reach me **arwarraich1@outlook.com , ar7220714@outlook.com**
 
 - 📄 Know about my experiences [https://github.com/ARaheeem/CV/blob/main/README.md](https://github.com/ARaheeem/CV/blob/main/README.md)
 
